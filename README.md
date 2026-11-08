@@ -23,5 +23,5 @@ Contact Me
 
 Available for hourly, fixed-price and monthly B2B projects.
 
-# -abdullahoutbound
+# -abdullahoutbound1
 Abdullah | B2B Lead Generation Specialist
